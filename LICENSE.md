@@ -1,4 +1,4 @@
-
+best Script for Trello for macOS - goal tracking and collaboration offers the most advanced Trello for macOS script, with goal tracking and collaboration. Ideal for professionals.
 
 
 
